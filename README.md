@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @itsiebitsieninskie
+- 👋 Hi, I’m @exianninsikie
 - 👀 I’m interested in you
 - 🌱 I’m currently learning what I need to learn
 - 📫 How to reach me? You can find me here, there and everywhere
